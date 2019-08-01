@@ -1,1 +1,1 @@
-Smile
+Smile, breathe and go slowly.
